@@ -25,7 +25,7 @@ hide_credits: true
 
 # Build settings
 markdown: kramdown
-theme: hitchens-theme
+remote_theme: patdryburgh/hitchens
 plugins:
   - jekyll-feed
 
