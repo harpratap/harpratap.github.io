@@ -1,0 +1,19 @@
+---
+layout: post
+title:  "On how to listen Nusrat Fateh Ali Khan"
+date:   2023-05-31 19:13:06 +0900
+categories: meta
+---
+I vividly remember, Linkin Park was the first artist I started getting goosebumps listening to. It didn't make a difference how my day was or what I was feeling prior, when I plugged in my headphones and zoned out listening to them, what I felt was always the same. Back then I didn't really think too much of *why* or *how* it made me feel the way it did. But it always happened randomly, as in the same song wouldn't hit me the same way for weeks at stretch but all of a sudden it would. 
+
+Slowly I "Graduated" to Kanye West (see what I did there? :P) One day I was just going through some of his interviews while he was making *Jesus is King*, and he mentioned how he decides his instrumentations and harmony, and how this choice completely changes what one is feeling when listening to the song. The difference in what you feel when listening to *Graduation* vs *Jesus is King* is quiet stark and I could understand what he was trying to say. Just like with words, these musical instruments can also make me feel very negative and also very positive. It was not just the lyrics that made me feel sorrow when I listened to Linkin Park all those years ago.
+
+So I started paying attention to all the minute details of whatever I was listening to. There are tons of YouTube videos out there explaining the nuance and cultural context of the lyrics and music. [This one video from Misteramazing] alone was enough to make me a fan of XXXTentacion and give me same level of goosebumps and chills that Linkin Park and Kanye used to give me. 
+
+Slowly I started noticing some patterns, the deeper I "understood" the music, the stronger and consistent these chills and zone outs were, almost meditative. So naturally, I had to switch from western music to Punjabi because I needed very little cultural context to understand them in depth. 
+
+First thing of utmost importance was to actually give music the attention it deserved. I could never listen to it while I was working on something. Second was, just like you'd warm-up for a physical activity like running or dancing, listening to music also needed warm. The best thing about Nusrat Fateh Ali Khan's (NFAK) music was these warm ups were already part of his songs. He himself was going through these high states of meditation so naturally I could feel going through the same journey as him. Which brings me to the third point - ਜਿਸਦਾ ਸਾਹਿਬ ਭੁੱਖਾ ਨੰਗਾ ਹੋਏ ਉਸਦੀ ਨਫ਼ਰ ਕਿੱਥੋਂ ਰੱਜ ਖਾਏ *If the master is naked and hungry, how will the disciples have their stomachs full?* The music you are listening to needs to have that high calibre of talent to make you feel so strongly. All music has different mood and setting it was meant to listen in, NFAK's music is supposed to be meditative and help you reach divinity. You wouldn't play Cardi B at a funeral, would you?  
+
+In the beginning to help myself "get in the zone" I used to imagine playing alongside him. This worked many times, but the drawback was I could only feel the songs that were relatable, invoke only the feelings I had felt before in my life. So a lot of his songs didn't hit the same way some of them did. Over the course of time, I don't know how, but I could feel it for most of his songs, felt new things that the songs were about that I have never felt before in my life. I guess one reason could be I stopped "ego listening" as in, I stopped imagining myself being at the center of the song and instead imagined myself in the audience, just ready to go wherever NFAK wanted to take me. 
+
+[This one video from Misteramazing]: https://www.youtube.com/watch?v=Q7oDUgFlPhw
