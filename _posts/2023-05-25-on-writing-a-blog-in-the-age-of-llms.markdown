@@ -2,7 +2,6 @@
 layout: post
 title:  "On writing a blog in the age of LLMs"
 date:   2023-05-25 19:13:06 +0900
-categories: meta
 ---
 LLMs are pure magic! I don't understand how, but it somehow manages to not only blurb out coherent answers but also be creative if you want it to be, already outclassing my literally skills :( 
 
