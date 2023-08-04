@@ -10,9 +10,9 @@ But everything has [nuance](/2023/06/10/on-nuance.html), this concept of "evolvi
 
 I was very much like this (and maybe still am, old habits die hard). And the most scary part was I never realized I had my intentions completely in the wrong place. It only clicked when I was casually discussing with a friend of mine, who self claimed to have achieved perfect grades in school, got admission to prestigious university and aced academics and placements, got a top of the line job, quickly climbed the ladder and doing extremely well and yet "failed to ace love life". The focus on *wanting* and *achieving*  love was so high that we forget that the sole purpose of love is to give it away and not *want* it.
 
-I was behaving the same my whole life too. *I want XYZ, I deserve ABC, personality type MNO makes me happy, should speak love language PQR, attachment style EFG* yadayada... I was just trying to level up my Pokemons and was focused on my own ego and self service the whole time, completely missing the point!
+I was behaving the same my whole life too. *I want XYZ, I deserve ABC, personality type MNO makes me happy, should speak love language PQR, attachment style EFG* yadayada... I was just trying to level up my Pokemons and was focused on my own ego and self service the whole time, completely missing the point! One could argue that they can find someone they *want* and live their whole lives comfortably, but how do you know if that was the final level? What if there were higher levels of experiences that I completely turned away from because of my ignorance, just like I did so far in my life?
 
-So what even is love? Is it even important?
+So this begs the question - What even is love? Is it even important?
 <br /><br />
 
 <p style="color:gray;text-align:center;">
