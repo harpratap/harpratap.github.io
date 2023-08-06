@@ -13,7 +13,10 @@ Right off the bat, lot of materialistic things are obviously temporary. Knowledg
 
 Planets die, stars die, oceans terraform into land and land disintegrates back to oceans. Even ideas only last as long as they are being thought upon.
 
-The only thing that seems permanent is evanescence, and evanescence itself is just a derivative of death.
+The only thing that seems permanent is evanescence, and evanescence itself is just a derivative of death. Might sound like a debby downer here, but this is the most positive thing I could think of! If death is the only permanance then the only thing it can give importance to is existence of life itself. A hot summer day keeps me yearning for the clouds and the rain and the only reason I miss the Sun is because of the cloudy weather in Tokyo :D
+
+The permanence of death is creating reason for life and the living 🖤
+
 <br /><br />
 <p style="color:gray;text-align:center;">
 ਮਾਈ ਸਤਿ ਸਤਿ ਸਤਿ ਹਰਿ ਸਤਿ ਸਤਿ ਸਤਿ ਸਾਧਾ ॥
